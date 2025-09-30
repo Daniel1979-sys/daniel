@@ -1,2 +1,2 @@
-# daniel
+# danieljoylakshana@gmail.com 
 putra
